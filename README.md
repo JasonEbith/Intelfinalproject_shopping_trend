@@ -1,0 +1,1 @@
+# Intelfinalproject_shopping_trend
